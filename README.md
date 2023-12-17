@@ -1,2 +1,3 @@
 # Scrum-Desafio
 Scrum - Desafio da DIO
+https://miro.com/welcomeonboard/Q3ZSTnAyZllENmplNm9kQUEyakRLNUtiamFLOGN1cUVJUE5YQzFkSGpoVjZCaXBPYldrTGJxVUw1dlVjRzJPYXwzNDU4NzY0NTYwMzcxMzA2MzQ3fDI=?share_link_id=182868502755
